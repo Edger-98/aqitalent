@@ -1,2 +1,0 @@
-# aqitalent
-investing in talent
